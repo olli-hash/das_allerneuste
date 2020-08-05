@@ -2,11 +2,11 @@
 
 
 
-#Demokratie und geistige Gesundheit / geistige Freiheit / psychische Macht
+# Demokratie und geistige Gesundheit / geistige Freiheit / psychische Macht
 
-##Geiteszustand der Massen, Zeitgeist, Moral, Meinungsfreiheit
+## Geiteszustand der Massen, Zeitgeist, Moral, Meinungsfreiheit
 
-##Innerpsychischer Freiheitskampf
+## Innerpsychischer Freiheitskampf
 
 
 Wer die Gedanken beherrscht, der beherrscht die Demokratie
