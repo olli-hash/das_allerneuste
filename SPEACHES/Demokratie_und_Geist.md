@@ -1,17 +1,18 @@
 
 
-## Demokratie und geistige Gesundheit / geistige Freiheit / psychische Macht
-## Geiteszustand der Massen, Zeitgeist, Moral, Meinungsfreiheit
-## Innerpsychischer Freiheitskampf, Angst
+### Demokratie und geistige Gesundheit / geistige Freiheit / psychische Macht
+### Scheinbare Demokratie und wirkliche Demokratie
 
-## Das Phänomen Zeitgeist – Kollektivbewusstsein(e), Geistesströmungen, Mainstreams und Sidestreams
-## Ideologien, Lagerdenken
+### Geiteszustand der Massen, Zeitgeist, Moral, Meinungsfreiheit, Meinungsklima
+### Innerpsychischer Freiheitskampf, Angst
+
+### Das Phänomen Zeitgeist – Kollektivbewusstsein(e), Geistesströmungen, Mainstreams und Sidestreams
+### Ideologien, Lagerdenken
 
 ### (Begriffsklärungen!)
 
 
 "Wer die Gedanken beherrscht, der beherrscht die Demokratie"
-"Wer die Gedankenströme in einer Gesellschaft beherrscht, der beherrscht die Demokratie"
 
 
 Beispiel:
@@ -25,8 +26,21 @@ Dieses Phänomen existiert prinzipiell heute immernoch. Nur kommt der psychische
 
 
 
+## Scheinbare Demokratie und effektive Demokratie - versteckter Demokratiemangel
 
-Für mich impliziert das: Wer nach Demokratie ruft, der muss gleichzeitig auch nach der geistigen Freiheit des Menschen rufen.
+Perspektive
+
+Formel: Demokratische Grundordnung * Geistige Freiheit = effektive Demokratie
+(jeweils als Faktoren zwischen 0 und 1)
+
+Die demokratische Grundordnung kann noch so ausgefeilt sein (z.B. 1 ; maximal ). Wenn die geistige Freiheit in einer Gesellschaft unterentwickelt ist (z.B. 0,5), dann zieht das die Demokratie automatisch mit runter (1 * 0,5 = 0,5).
+
+Für mich ist daher klar: Wer nach Demokratie ruft, der muss gleichzeitig auch nach der geistigen Freiheit des Menschen rufen.
+
+Sich nur auf den formalen Ordnungsrahmen zu berufen reicht nicht. Es ist sträflich oberflächlich, nur die formal technische Ebene einer Demokratie zu betrachten. Das Wesentliche ist der Mensch darin, und der Mensch muss frei sein, sonst ist alles, was er macht, fast ohne Wert.
+
+
+### Schlussfolgerung und die Demokratiefrage
 
 
 
