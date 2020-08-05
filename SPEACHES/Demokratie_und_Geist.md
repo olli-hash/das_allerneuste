@@ -18,11 +18,15 @@ Beispiel:
 Die psychische Macht der katholischen Kirche in der Vergangenheit.
 Wäre sie heute noch so gegeben wie früher; wir hätten z.B. ein viel strengeres Abtreibungsrecht
 
-Dies betrachte ich als eine "Verzerrung" der Demokratie. Denn die Menschen nehmen den psychischen Druck, den sie von der Kirche erhalten, mit in ihre Wahlkabine. Sie machen ihr Kreuz auf dem Wahlzettel nicht frei. Dadurch erhält ein einzelner Akteur, eben die Kirche, eine ungeheuere Macht, die ihr "normalerweise" in einer Demokratrie gar nicht zustehen würde.
+Dies betrachte ich als eine "Verzerrung" der Demokratie. Denn die Menschen nehmen den psychischen Druck, den sie von der Kirche erhalten, mit in ihre Wahlkabine. Sie machen ihr Kreuz auf dem Wahlzettel nicht frei. Dadurch erhält ein einzelner Akteur, eben die Kirche, eine ungeheuere Macht, die ihr "normalerweise" in einer Demokratie gar nicht zustehen würde.
+
+Dieses Phänomen existiert prinzipiell heute immernoch. Nur kommt der psychische Druck heute kaum noch von den Kirchen. Die psychische Macht liegt heute eher bei den Medien und beim "Mainstream".
 
 
-Dieses Phänomen existiert prinzipiell heute immernoch. Nur kommt der psychische Druck heute kaum noch von der katholischen Kirche. 
 
+
+
+Für mich impliziert das: Wer nach Demokratie ruft, der muss gleichzeitig auch nach der geistigen Freiheit des Menschen rufen.
 
 
 
