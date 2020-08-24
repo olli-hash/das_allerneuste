@@ -2,6 +2,16 @@
 
 
 
+
+
+Chris Ares + Silberjunge wird dann wohl als nächstes gelöscht:
+
+https://www.youtube.com/watch?v=RZvfBF4hl0I
+
+
+
+--------- --------- --------- --------- --------- --------- --------- ---------
+
 Wo die Moral zu weit geht, wird es amoralischer, nicht moralischer.
 
 (Das gilt auch für den Anti-Rassismus. Denn es gilt ganz generell.)
