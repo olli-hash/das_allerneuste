@@ -28,7 +28,7 @@ Wo die Moral zu weit geht, wird es amoralischer, nicht moralischer.
 --------- 
 
 **Die Linke übersieht ihre eigene Amoral.
-Die Rechte gesteht sie ein.**
+Die Rechte gesteht sie sich ein.**
 
 
 
