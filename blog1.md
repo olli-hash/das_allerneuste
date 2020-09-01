@@ -23,10 +23,14 @@ https://www.youtube.com/watch?v=RZvfBF4hl0I
 
 Wo die Moral zu weit geht, wird es amoralischer, nicht moralischer.
 
-(Das gilt auch für den Anti-Rassismus. Denn es gilt ganz generell.)
+(Das gilt auch für den Anti-Rassismus.)
+
+--------- 
+
+**Die Linke übersieht ihre eigene Amoral.
+Der Rechte gesteht sie ein.**
 
 
-Die Linke übersieht, dass sie sich amoralisch gegenüber den Rechten verhält.
 
 
 https://twitter.com/twilightbuddha/status/1286382570515636225
