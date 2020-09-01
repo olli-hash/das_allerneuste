@@ -1,12 +1,22 @@
 
 
 
+Warum ich es für falsch halte, Vielfalt als generellen Wert an sich zu proklamieren:
+
+Menschen sind nicht wie Musik.
+
+In Bezug auf Musik kann ich den Vielfaltsgedanken verstehen - in Bezug auf Menschen kann ich es nicht - oder nicht ganz.
+
+
+Menschen sind nicht wie Musik. Es wäre schön, wenn sie es wären.
+
+
+
+---------
+
 
 Abgrenzbarkeit von Menschen
 Das Abgrenzen im Geiste
-
-
-
 
 
 ---------
