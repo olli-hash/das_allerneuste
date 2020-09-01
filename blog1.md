@@ -8,7 +8,7 @@ Menschen sind nicht wie Musik.
 In Bezug auf Musik kann ich den Vielfaltsgedanken verstehen - in Bezug auf Menschen kann ich es nicht - oder nicht ganz.
 
 
-Menschen sind nicht wie Musik. Es wäre schön, wenn sie es wären.
+Menschen sind nicht wie Musik. Doch manche (sehr wenige) sind es.
 
 
 
