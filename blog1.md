@@ -44,6 +44,25 @@ Das ist Information plus Interpretation, Information plus Meinung. Offenbar geht
 
 
 
+Warum ich es für falsch halte, Vielfalt als generellen Wert an sich zu proklamieren:
+
+Menschen sind nicht wie Musik.
+
+In Bezug auf Musik kann ich den Vielfaltsgedanken verstehen - in Bezug auf Menschen kann ich es nicht - oder nicht ganz.
+
+
+Menschen sind nicht wie Musik. Doch manche (sehr wenige) sind es.
+
+
+
+---------
+
+
+Abgrenzbarkeit von Menschen
+Das Abgrenzen im Geiste
+
+
+---------
 
 
 
@@ -53,14 +72,18 @@ https://www.youtube.com/watch?v=RZvfBF4hl0I
 
 
 
---------- --------- --------- --------- --------- --------- --------- ---------
+--------- 
 
 Wo die Moral zu weit geht, wird es amoralischer, nicht moralischer.
 
-(Das gilt auch für den Anti-Rassismus. Denn es gilt ganz generell.)
+(Das gilt auch für den Anti-Rassismus.)
+
+--------- 
+
+**Die Linke übersieht ihre eigene Amoral.
+Die Rechte gesteht sie sich ein.**
 
 
-Die Linke übersieht, dass sie sich amoralisch gegenüber den Rechten verhält.
 
 
 https://twitter.com/twilightbuddha/status/1286382570515636225
