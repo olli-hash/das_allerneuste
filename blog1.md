@@ -9,15 +9,10 @@
 
 --------- --------- --------- --------- --------- --------- --------- ---------
 
-
-
-
 https://correctiv.org/top-stories/2020/11/17/kein-filter-fuer-rechts-instagram-rechtsextremismus-rechte-memes-moderne-propaganda-auf-instagram/
-
 
 Rechte Memes!
 :-)
-
 
 
 
@@ -72,13 +67,13 @@ https://www.youtube.com/watch?v=RZvfBF4hl0I
 
 
 
---------- 
+---------
 
 Wo die Moral zu weit geht, wird es amoralischer, nicht moralischer.
 
 (Das gilt auch für den Anti-Rassismus.)
 
---------- 
+---------
 
 **Die Linke übersieht ihre eigene Amoral.
 Die Rechte gesteht sie sich ein.**
